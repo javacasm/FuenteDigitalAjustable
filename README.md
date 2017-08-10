@@ -12,7 +12,7 @@ En el lcd aparece el enlace de la tienda
 
 [https://shop35395693.world.taobao.com/](https://shop35395693.world.taobao.com/)
 
-## Enlaces para compra compra
+## Enlaces para compra 
 
 [Taobao](https://world.taobao.com/item/532555910832.htm?fromSite=main&spm=a1z10.1-c.w4004-4669527213.46.321ec31RhKmAB)
 
